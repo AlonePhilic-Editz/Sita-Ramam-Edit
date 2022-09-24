@@ -1,6 +1,7 @@
 # Hello Friends 
-- Watch my video first channel link given below
-- Click on the images for the links
+- Watch my video first !
+- Channel link given below
+- Click on the images for the links !
 ---
 # Download Video in HQ <a href="https://link-target.net/494480/download-video"> Click Me </a>
 ---
